@@ -1,16 +1,16 @@
-## Hi there 👋
+## dejen de leer 🙀
 
-<!--
-**topomori/topomori** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+conoces a marcelo ? 
+(no) 
+Pues agachate y conocelo
 
-Here are some ideas to get you started:
+- estoy en la esculaaaaaaaaaaaaa porqueeeeeeeeeeeeeeeeeeeeeee me haceeen estudiar . aunque me gusta pero bueno :C estudio en [Alura]
+- ([Alura ](https://cursos.alura.com.br/)
+- creo que esta actividad es de java pero no entiendo nada
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  #### puedo trabahar si me ensenhan que dicen?
+
+  mi correo es kknoonton@gmail.com
+
+![]()
+  https://media1.tenor.com/m/vBSUZUJm89YAAAAd/one-piece-op.gif
